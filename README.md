@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://44.media.tumblr.com/df4603acd93a08c7b8300c8e93f345b4/9392988639f8bde2-8f/s400x600_f1/0d4cb171361167715ee646ee46fa8c6f29dd3857.gifv"/>
+  <img src="https://64.media.tumblr.com/df4603acd93a08c7b8300c8e93f345b4/9392988639f8bde2-8f/s400x600/e1d5800e80018b8247ee219c0e183812347f477d.gifv"/>
 </p>
 
 
@@ -13,5 +13,5 @@ i can't tell tones that well, tone tags are nice but they don't help that much <
 sorry if i seem like a dick, going through a lot of things - on and off because of this.
 
 <p align="center">
-  <img src="https://44.media.tumblr.com/60673aad9a4adb62ef451c6d0abe67e4/9392988639f8bde2-f0/s400x600_f1/93af1f63ca6eba7449c605157bd082dc2f472a6b.gifv"/>
+  <img src="https://64.media.tumblr.com/60673aad9a4adb62ef451c6d0abe67e4/9392988639f8bde2-f0/s400x600/d046db8d0905c1e4370a4c067bd26b2c8aa3decb.gifv"/>
 </p>
