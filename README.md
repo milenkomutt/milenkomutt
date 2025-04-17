@@ -14,6 +14,8 @@ sorry if i seem like a dick, going through a lot of things - on and off because 
 
 literally jinx and jeff irl btw, akechi and futaba too..
 
+i have shaky hands, can't spell good a lot of the time.
+
 <p align="center">
   <img src="https://64.media.tumblr.com/60673aad9a4adb62ef451c6d0abe67e4/9392988639f8bde2-f0/s400x600/d046db8d0905c1e4370a4c067bd26b2c8aa3decb.gifv"/>
 </p>
