@@ -4,4 +4,6 @@ i struggle incredibly with conversations, not the best at starting them but defi
 
 i can't tell tones that well, tone tags are nice but they don't help that much </3 much apricated if they're used tho.
 
+sorry if i seem like a dick, going through a lot of things - on and off because of this.
+
 
