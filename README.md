@@ -12,6 +12,8 @@ i can't tell tones that well, tone tags are nice but they don't help that much <
 
 sorry if i seem like a dick, going through a lot of things - on and off because of this.
 
+literally jinx and jeff irl btw, akechi and futaba too..
+
 <p align="center">
   <img src="https://64.media.tumblr.com/60673aad9a4adb62ef451c6d0abe67e4/9392988639f8bde2-f0/s400x600/d046db8d0905c1e4370a4c067bd26b2c8aa3decb.gifv"/>
 </p>
